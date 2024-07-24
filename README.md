@@ -1,5 +1,5 @@
-# Z ble r Wtkb
+# Я иду к цели
 
 ## Per aspera ad astra
 
-Successfull **merge**
+Successfull **dream** *(maybe)*
