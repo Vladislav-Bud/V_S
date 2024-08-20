@@ -1,1 +1,1 @@
-12 months
+10 or 12 months
