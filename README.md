@@ -1,3 +1,9 @@
-# Remember... Belive... Work...
+# Per aspera ad astra
 
-## **Per aspera ad astra...**
+# Z ble r wtkb "или" Я иду к цели
+
+## Shit
+
+
+
+ghnm
